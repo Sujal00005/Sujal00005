@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sujal00005
 - 👀 I’m interested in Coding,Tech and building networking
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning about Computer Science And Engineering 
 - 📫 You can reach me at ysujal208@gmail.com
 - 😄 Pronouns: ...(He/Him)
 
